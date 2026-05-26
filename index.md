@@ -74,4 +74,4 @@ Google Play.
 
 ## Contact
 
-Questions or concerns: [colin@cenithinnovations.com](mailto:colin@cenithinnovations.com).
+Questions or concerns: [apps@melncoly.com](mailto:apps@melncoly.com).
